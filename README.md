@@ -25,5 +25,8 @@
 ![_](http://s1.radikale.ru/uploads/2018/1/22/52045d7a925a7231cf6b098a86e3b3cc-full.jpg)
 ![_](http://s1.radikale.ru/uploads/2018/1/22/3c61992a46a9b3f4be2796310bd04266-full.jpg)
 ![_](http://s1.radikale.ru/uploads/2018/1/22/53267a292cbf3a39cae544f13907f17b-full.jpg)
+***
+# Социальные сети
+![_](http://s1.radikale.ru/uploads/2018/1/22/0bddb2d18477b6b01f952f96315c29d3-full.jpg) [VK](https://vk.com/oikaktoplohostalo)
 
 
